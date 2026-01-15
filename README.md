@@ -1,16 +1,13 @@
-## Hi there 👋
+         . . .  a dead man  . . .
 
-<!--
-**deadfies/deadfies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  >> any / all . . . but prefer as she !
+
+
+ ` ` i get excited too quickly ` — 
+
+ i'm still under 18 . . . don't be too weird around me . . ok?)
+
+
+ im bisex but right now im not interested in a relationship ! !
